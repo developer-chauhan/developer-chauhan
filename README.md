@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 Reach me out on 
 hangout: chouhan234@gmail.com, 
-Skype: chouuhan, 
-Whatsupp: +91 9873143550
+Linkedin: https://www.linkedin.com/in/developer-chauhan, 
+Whatsupp: +91 9873143550, +65 89003192
